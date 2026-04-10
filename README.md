@@ -213,7 +213,7 @@ Lakshmi Chittem — Data & Credit Risk Analyst
 
 📧 chittem.lakshmi@outlook.com
 🔗 [https://www.linkedin.com/in/chittemlakshmiharipriya/]
-💻 [github.com/lakshmichittemofficial-sudo]
+💻 github.com/lakshmichittemofficial-sudo
 
 ---
 
