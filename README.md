@@ -212,8 +212,8 @@ Lakshmi Chittem — Data & Credit Risk Analyst
 - Based in Hyderabad | Open to Relocation
 
 📧 chittem.lakshmi@outlook.com
-🔗 linkedin.com/in/chittemlakshmiharipriya
-💻 github.com/lakshmichittemofficial-sudo
+🔗 [https://www.linkedin.com/in/chittemlakshmiharipriya/]
+💻 [github.com/lakshmichittemofficial-sudo]
 
 ---
 
