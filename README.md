@@ -209,7 +209,7 @@ See: [SQL/SQL_Queries_CreditRisk_LakshmiChittem.sql]
 Lakshmi Chittem — Data & Credit Risk Analyst
 - MSc Business Management — Loughborough University
 - Former Credit Analyst — E.ON Next UK
-- Based in Hyderabad | Open to Bangalore
+- Based in Hyderabad | Open to Relocation
 
 📧 chittem.lakshmi@outlook.com
 🔗 linkedin.com/in/chittemlakshmiharipriya
